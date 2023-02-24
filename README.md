@@ -19,6 +19,6 @@ My website
 
 [See it running](https://kingbuccini.netlify.app/) 
 
-If you want to give me a little gift, I'd appreciate it [Buymeacoffe](https://www.buymeacoffee.com/buccini) 🖤
+If you want to give me a little gift, I'd appreciate it [ko-fi](https://ko-fi.com/buccini555) 🖤
 
 **(It works and looks prettier on the computer, sorry if you're accessing it on your cell phone)**
